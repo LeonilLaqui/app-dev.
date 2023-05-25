@@ -1,7 +1,7 @@
 # Laqui, Leonil S. 
 ![346132120_1287554498786066_6138221118575661539_n](https://github.com/LeonilLaqui/app-dev./assets/134489823/79044691-bf1b-4ebe-a56b-882ccfec3903)
 
-5 Liana rd. brgy. Sto. Cristo, CSJDM | Bulacan, Philippines | 09760203235 | leonilsantiagolaqui319@gmail.com
+5 Liana Road. Barangay. Sto. Cristo, CSJDM | Bulacan, Philippines | 09760203235 | leonilsantiagolaqui319@gmail.com
 
 
 ## Summary
