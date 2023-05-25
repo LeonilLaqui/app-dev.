@@ -9,7 +9,7 @@ Motivated and hardworking undergrad majoring in computer engineering with strong
 
 ## Education
 - High School Graduate, STEM, University/Institution, 2021
-- **Bachelor of Science, Computer Engineering, STI SJDM, 2023
+- Bachelor of Science, Computer Engineering, STI SJDM, 2023
 
 ## Skills
 - Profeciency in Programming
